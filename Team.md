@@ -11,7 +11,7 @@ C. M.
 MaimeCesalli
 G. C.
 H. I.
-L. S.
+LEHTINEN Samuli
 Morgane
 R. A.
 R. A.
