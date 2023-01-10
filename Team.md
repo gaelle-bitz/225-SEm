@@ -14,7 +14,7 @@ H. I.
 LEHTINEN Samuli
 Morgane
 Rey Adrien
-R. A.
+Rithner Aurelien
 Schupbach Mathieu
 Simeonovic Filip
 S. P.
