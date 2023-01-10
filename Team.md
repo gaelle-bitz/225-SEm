@@ -9,7 +9,7 @@ B. G. Gaëlle
 B. P.
 C. M.
 MaimeCesalli
-G. C.
+Grobety Christophe
 H. I.
 L. S.
 P. M.
