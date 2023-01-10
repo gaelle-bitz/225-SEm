@@ -7,16 +7,16 @@ your first name to the list below.
 
 B. G. Gaëlle
 Bornet Pauline
-C. M.
+Maximus Caïus
 MaimeCesalli
 Grobety Christophe
 H. I.
 LEHTINEN Samuli
 Morgane
-R. A.
+Rey Adrien
 R. A.
 Schupbach Mathieu
 Simeonovic Filip
 S. P.
-K. S.
+van Kappel Sylvestre
 Zufferey Loris
