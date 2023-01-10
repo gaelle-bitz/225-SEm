@@ -17,6 +17,6 @@ Rey Adrien
 Rithner Aurelien
 Schupbach Mathieu
 Simeonovic Filip
-S. P.
+Stoeri Pablo
 van Kappel Sylvestre
 Zufferey Loris
