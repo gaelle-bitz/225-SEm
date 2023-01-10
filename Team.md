@@ -6,7 +6,7 @@ Please update this file by adding
 your first name to the list below.
 
 B. G. Gaëlle
-B. P.
+Bornet Pauline
 Maximus Caïus
 MaimeCesalli
 Grobety Christophe
