@@ -17,6 +17,6 @@ Rey Adrien
 R. A.
 Schupbach Mathieu
 Simeonovic Filip
-S. P.
+Stoeri Pablo
 K. S.
 Zufferey Loris
