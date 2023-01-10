@@ -5,7 +5,7 @@ Hello SYND/I5.
 Please update this file by adding
 your first name to the list below.
 
-B. G.
+B. G. Gaëlle
 B. P.
 C. M.
 MaimeCesalli
