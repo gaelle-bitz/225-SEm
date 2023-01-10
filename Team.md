@@ -13,7 +13,7 @@ Grobety Christophe
 H. I.
 LEHTINEN Samuli
 Morgane
-R. A.
+Rey Adrien
 R. A.
 Schupbach Mathieu
 Simeonovic Filip
