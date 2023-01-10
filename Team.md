@@ -18,5 +18,5 @@ R. A.
 Schupbach Mathieu
 Simeonovic Filip
 S. P.
-K. S.
+van Kappel Sylvestre
 Zufferey Loris
