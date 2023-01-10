@@ -14,9 +14,9 @@ H. I.
 LEHTINEN Samuli
 Morgane
 Rey Adrien
-R. A.
+Rithner Aurelien
 Schupbach Mathieu
 Simeonovic Filip
 Stoeri Pablo
-K. S.
+van Kappel Sylvestre
 Zufferey Loris
