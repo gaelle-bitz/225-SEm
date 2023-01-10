@@ -19,4 +19,4 @@ Schupbach Mathieu
 Simeonovic Filip
 S. P.
 K. S.
-Z. L.
+Zufferey Loris
