@@ -7,7 +7,7 @@ your first name to the list below.
 
 B. G. Gaëlle
 B. P.
-C. M.
+Maximus Caïus
 MaimeCesalli
 Grobety Christophe
 H. I.
