@@ -15,7 +15,7 @@ L. S.
 P. M.
 R. A.
 R. A.
-S. M.
+Schupbach Mathieu
 S. F.
 S. P.
 K. S.
